@@ -1,0 +1,1 @@
+# japan-lgtm.github.io
